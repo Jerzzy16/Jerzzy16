@@ -1,5 +1,5 @@
 # 💫 Hello Buzz:
-🚀To Infinity and Beyond<br><br>📫 How to reach me johnjerzz16@gmail.com<br><br>⚡ Fun fact Pandas have excellent camouflage for their habitat
+🚀To Infinity and Beyond<br><br>📫 How to reach me johnjeruel@gmail.com<br><br>⚡ Fun fact Pandas have excellent camouflage for their habitat
 
 
 ## 🌐 Socials:
